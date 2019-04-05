@@ -15,5 +15,5 @@ published: true
 
 Sänger und Winzer. In allen Bereichen hervorragend.
 
-Als Winzer steht er in einer langen familiären Tradition,
+Als Winzer steht er in einer kurzen familiären Tradition,
 als professioneller Sänger mit Schwerpunkt im klassischen Reportoire, begeistert er auch überregional sein Publikum.
